@@ -7,3 +7,4 @@ cad设计
 ![image](https://github.com/backpackerxl/product-cad/assets/77010118/7cbc33e1-ca46-4e2d-b0db-9d03281aa89e)
 
 #### 梳子
+![09116aeff37f6c8e8266f7f4cee2319](https://github.com/backpackerxl/product-cad/assets/77010118/7e217f1d-05bf-4521-ace2-0a519efdcc36)
