@@ -18,5 +18,6 @@ cad设计
 
 
 #### 天鹅木簪
-![image](https://github.com/user-attachments/assets/21858c2d-bdae-418d-92c5-667479486ab6)
+![image](https://github.com/user-attachments/assets/fa41ccd9-0080-4507-a2f3-5130df8995ef)
+
 
