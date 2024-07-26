@@ -8,3 +8,7 @@ cad设计
 
 #### 梳子
 ![09116aeff37f6c8e8266f7f4cee2319](https://github.com/backpackerxl/product-cad/assets/77010118/7e217f1d-05bf-4521-ace2-0a519efdcc36)
+
+#### 天鹅木簪
+![image](https://github.com/user-attachments/assets/21858c2d-bdae-418d-92c5-667479486ab6)
+
